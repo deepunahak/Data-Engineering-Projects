@@ -1,0 +1,1 @@
+# Market Analysis for opening a new restaurant in Bangalore 
